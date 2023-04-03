@@ -34,6 +34,6 @@ Atuando no Hospital das Clínicas de Marília - HCI, no Departamento de Tecnolog
 * Trabalho em equipe
 * Empatia com usuário/cliente
 
-
+Ótimo currículo !!!
 
 
